@@ -1,0 +1,1 @@
+A reselling marketplace exclusively for a community.
